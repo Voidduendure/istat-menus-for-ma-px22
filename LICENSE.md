@@ -1,4 +1,4 @@
-
+Get the ultimate iStat Menus for macOS automation with iStat Menus for macOS best Automation - snapshot-rollback and privacy-protection. Featuring snapshot-rollback and
 
 
 
